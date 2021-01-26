@@ -17,13 +17,3 @@ eeeee
 
 asasdzxczxccvbvbnbmn,
 dsdfsdfsd
-
-
-
-
-
-
-
-
-
-
