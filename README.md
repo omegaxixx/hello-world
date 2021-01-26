@@ -18,7 +18,5 @@ eeeee
 asasdzxczxccvbvbnbmn,
 
 
-uuuuuuuuuuuuuuuuu
-
 dsdfsdfsd
 
